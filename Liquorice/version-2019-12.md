@@ -2,7 +2,7 @@
 
 ##### Ingredients
 
- - Raw liqourice root powder ( 4 tbsp )
+ - Raw liquorice root powder ( 4 - 6 tbsp )
  - Dark syrup ( 1.5 dl )
  - Brown sugar ( e.g. muscovada ) ( 4 tbsp )
  - All-purpose flour ( 5 - 6 dl )

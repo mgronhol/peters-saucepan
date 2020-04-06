@@ -2,7 +2,7 @@
 
 ##### Ingredients
 
- - Instant noodles, chicken falvour ( 1 packet )
+ - Instant noodles, chicken flavour ( 1 packet )
  - Miso paste ( 2 - 3 teaspoons )
  - Soy sauce ( 2 - 3 teaspoons )
  - Mirin ( 2 teaspoons )
@@ -16,7 +16,7 @@
 ##### Process
 
  1) Boil 1.5 l of water with an electric kettle
- 2) Fry bacon cubes on an pan
+ 2) Start frying bacon cubes on an pan
  3) When water is boiling, put the egg into a kettle and cover it with boiling water (and turn the heat on)
  4) Put miso, soy, mirin and chili paste to a bowl, add instant noodles (and satchets coming with it) and rest of the boiling water
  5) When bacon is done, add it to the bowl
